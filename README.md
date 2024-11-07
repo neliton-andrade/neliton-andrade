@@ -8,7 +8,7 @@ meu nome é  Neliton J. Andrade
 
 -utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
--craque da bola
+-craque de lapelota
 
 
 ![](https://media1.tenor.com/m/LsYPAE9JiP8AAAAd/rolando-ronaldo.gif)
